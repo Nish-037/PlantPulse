@@ -98,7 +98,7 @@ PlantPulse/
 
 - [Sameeksha](https://github.com/Sameeksha0329)  
 
-- [Nishvika](https://github.com/Nish-037) 
+- [Riya](https://github.com/Riya-jalan) 
 
 
 
